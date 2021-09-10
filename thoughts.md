@@ -8,4 +8,8 @@ New Strategies:
 
 1. Carve out time for your personal health and wellness. If you don't know one will. It will benefit your work even if it takes you away from actively working on what you are working on.
 
-2. Good note taking can increase what you retain in class, as well as making it better to revisit. Colors, drawings, highlighting and translating lectures into your own language can help learn. 
+2. Good note taking can increase what you retain in class, as well as making it better to revisit. Colors, drawings, highlighting and translating lectures into your own language can help learn.
+
+Shoutout:
+
+1. Shoutout to my significant other for the love, support while I was completing the Colorado Trail in the month of August. I couldn't have done it without you.
