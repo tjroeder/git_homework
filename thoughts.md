@@ -13,3 +13,6 @@ New Strategies:
 Shoutout:
 
 1. Shoutout to my significant other for the love, support while I was completing the Colorado Trail in the month of August. I couldn't have done it without you.
+
+
+This is just some notes from session 3 github practice.
